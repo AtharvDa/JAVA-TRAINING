@@ -1,0 +1,1 @@
+Effigo global training
